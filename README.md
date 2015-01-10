@@ -10,7 +10,7 @@ I get really animated when someone lets me talk about statistics and my eyes go 
 
 When I'm working I completely lose track of time.  I missed my first date with my wife because I was doing my physics homework.  Hand to god.  She is very forgiving.
 
-I have two kids.  When I come home, they run up and give me a hug.  Then they ignore me.  But for that one second... it's pretty cool.
+I have two kids.  When I come home they run up and give me a hug.  Then they ignore me.  But for that one second... it's pretty cool.
 
 
 I am not a poet.  I once wrote this pair of haiku:
