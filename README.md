@@ -16,11 +16,16 @@ I have two kids.  When I come home, they run up and give me a hug.  Then they ig
 I am not a poet.  I once wrote this pair of haiku:
 
 Fireflies absently
+
 Dance across the twilit road -
+
 Neon splash on glass
 
+
 Title: Starry Night
+
 Media: Insect on glass
+
 Artist: Volkswagen
 
 But that's all I had in me.  That little bit and then it was done.
